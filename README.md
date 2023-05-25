@@ -1,1 +1,1 @@
-# wauuu.io
+# wauuuu.github.io
